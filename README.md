@@ -16,3 +16,9 @@ Berikut tampilan Pantau-Covid19-Apps
 
 4. Profile Developer
 ![Screenshot_4](https://user-images.githubusercontent.com/63776459/89097150-8f762b80-d406-11ea-88e4-6da0737f2ac1.png)
+
+
+TERIMA KASIH!!
+Jangan Lupa Follow IG Saya : 
+1. https://www.instagram.com/erwinpaisal.id
+2. https://www.instagram.com/literasikoding
