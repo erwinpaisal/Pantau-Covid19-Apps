@@ -19,6 +19,5 @@ Berikut tampilan Pantau-Covid19-Apps
 
 
 TERIMA KASIH!!
-Jangan Lupa Follow IG Saya : 
-1. https://www.instagram.com/erwinpaisal.id
-2. https://www.instagram.com/literasikoding
+Untuk Inspirasi lain silahkan klik :
+https://biolinky.co/erwinpaisal
